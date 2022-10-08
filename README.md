@@ -7,4 +7,4 @@ Made by: Takshal Modi
 
 Made on: 8/10/22
 
-*Copy Karne ka ho toh bol dena 😉😉
+*Copy Karna ho toh bol dena 😉😉
